@@ -1,0 +1,1 @@
+# bartrade-pregled-zaliha
